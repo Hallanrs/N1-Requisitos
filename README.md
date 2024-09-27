@@ -1,2 +1,2 @@
-NOMES DO GRUPO: Hallan Rauber Sbardelatti
+NOMES DO GRUPO: Hallan Rauber Sbardelatti e
 Davi Scheuer
