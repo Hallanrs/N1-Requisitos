@@ -1,1 +1,2 @@
-# N1-Requisitos
+NOMES DO GRUPO: Hallan Rauber Sbardelatti
+Davi Scheuer
